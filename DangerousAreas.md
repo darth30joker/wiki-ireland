@@ -9,7 +9,7 @@
 
 ### South Dublin
 * Crumlin
-* Near Riato, Dublin 8
+* Near Rialto, Dublin 8
 * Near Tallaght, Dublin 24
 * Near Sallynoggin and Dun Laoghaire
 
